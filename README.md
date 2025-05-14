@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on vk, youtube, instagram, telegram, github, steam, boosty, twitch and more
 - ⚡ How to reach me? Subcribe me on all platforms) 
 - 😄 Jokes: must be fun to play haha)
-- 📫 Fun fact: newmegailia@yandex.ru
+- 📫 Fun fact: ilia.schulmin@gmail.com
 
 Rus
 Здарова! Это моя первая игра, которую я успешно разработал, прошу строго не судить, я использовал только свои руки и знания. 
